@@ -1,1 +1,1 @@
-# jp-morgan-chase-virtual-internship
+# JP-morgan-chase-virtual-internship
